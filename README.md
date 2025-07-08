@@ -10,4 +10,4 @@
 
 本平台提供精选的国产调教视频系列，涉及多种类别，如剧情片、制服诱惑、重口味等，满足不同观影需求。所有视频资源支持高清播放，用户可根据个人喜好选择影片，平台无广告干扰，保证流畅观看体验。此外，每个影片页面都提供详细介绍，包括演员、时长、清晰度等，方便快速筛选。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/ha20250708/ha3 ）</span>
